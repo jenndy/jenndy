@@ -1,4 +1,4 @@
-### Hey there 👋
+### Hi there 👋
 
 I’m currently interested in machine learning 📈, social good ⚖️, art 🎨 and all the spaces in-between.
 
