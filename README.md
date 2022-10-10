@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-I’m interested in machine learning 📉, social good ⚖️, art 🎨 and all the spaces in-between.
+I’m interested in machine learning 📉, social good ⚖️, art 🎨 and all the spaces in-between ✨
 
 I love learning new things, send me a message if you want to chat or work together!
 
