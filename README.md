@@ -4,7 +4,7 @@ I’m interested in machine learning 📉, social good ⚖️, art 🎨 and all 
 
 I love learning new things, send me a message if you want to chat or work together!
 
-[My LinkedIn ~](linkedin.com/in/jennifer-dong/)
+[My LinkedIn ~](https://linkedin.com/in/jennifer-dong/)
 
 <!--
 **jenndy/jenndy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
