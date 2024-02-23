@@ -1,7 +1,7 @@
 ### Hi there 👋
 
-Hi there ~
-✨ I’m a designer 👩🏻‍🎨 with a background in AI/ML 💎 software development 👩🏻‍💻 social good ⚖️ and illustration 🎨 
+✨ I’m interested in design 👩🏻‍🎨 AI/ML 💎 software development 👩🏻‍💻 social good ⚖️ and illustration 🎨 
+
 ✨ I love meeting new people and learning new things — send me a message if you want to chat or work together!
 
 [My LinkedIn ~](https://linkedin.com/in/jenndy/)
